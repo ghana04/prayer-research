@@ -60,7 +60,23 @@ These children were not believers, but represented something of what a believer 
 
 - **Beneficiaries**: Children
 
-## Matthew 24:20 | Pray that it would not be on a Sabbath
+## Matthew 21:13 | My house shall be called a house of prayer
+
+*He said to them, "It is written, 'My house shall be called a house of prayer,' but you make it a den of robbers."*
+
+The gathering of God's people is to be so marked by prayer that it be called according to it. 
+Not 'a house of worship', not 'a house of evangelism', not 'a house of missions', not 'a house of miracles', but 'a house of prayer'.
+
+We as believers in the New Testament are the house of God.
+We are to be a praying people. 
+
+## Matthew 21:22 | You will receive if you have faith
+
+*And whatever you ask in prayer, you will receive, if you have faith.*
+
+- **Manner**: By faith
+
+## Matthew 24:20 | Pray that it would not be on a Sabbath or in winter
 
 *Pray that your flight may not be in winter or on a Sabbath*
 
@@ -68,7 +84,7 @@ It is fixed that the tribulation will occur, but Jesus encourages his disciples 
 
 - **Beneficiaries**: Believers
 
-## Matthew 26:36-45
+## Matthew 26:36-45 | Prayer in Gethsemane
 
 *36 Then Jesus went with them to a place called Gethsemane, and he said to his disciples, “Sit here, while I go over there and pray.”*
 *37 And taking with him Peter and the two sons of Zebedee, he began to be sorrowful and troubled.*
