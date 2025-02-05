@@ -47,12 +47,30 @@ As carriers of the Spirit of Christ, we also can pray for ourselves for Jesus' s
 
 ### 6-11
 
-*6 “I have manifested your name to the people whom you gave me out of the world. Yours they were, and you gave them to me, and they have kept your word.*
-*7 Now they know that everything that you have given me is from you.*
-*8 For I have given them the words that you gave me, and they have received them and have come to know in truth that I came from you; and they have believed that you sent me.*
-*9 I am praying for them. I am not praying for the world but for those whom you have given me, for they are yours.*
-*10 All mine are yours, and yours are mine, and I am glorified in them.*
-*11 And I am no longer in the world, but they are in the world, and I am coming to you. Holy Father, keep them in your name, which you have given me, that they may be one, even as we are one.*
+_6 “I have manifested your name to the people whom you gave me out of the world. Yours they were, and you gave them to me, and they have kept your word._
+_7 Now they know that everything that you have given me is from you._
+_8 For I have given them the words that you gave me, and they have received them and have come to know in truth that I came from you; and they have believed that you sent me._
+_9 I am praying for them. I am not praying for the world but for those whom you have given me, for they are yours._
+_10 All mine are yours, and yours are mine, and I am glorified in them._
+_11 And I am no longer in the world, but they are in the world, and I am coming to you._
+_Holy Father, keep them in your name, which you have given me, that they may be one, even as we are one._
+
+Again, deferring to the Father: "_your_ name", "the people whom _you_ gave me", "_Yours_ they were", "they have kept _your_ word".
+The result of this is that the disciples now know "everything that you have given me is from you".
+
+Even what Jesus had to give ("the words") were given to Him.
+He gave not from Himself, but that which He received.
+In order to receive, He had to dwell with/ask/know the Father.
+
+> We need to constantly go to Jesus, look to Jesus, learn from Jesus, that we can 'give' Jesus to others.
+> Jesus spent much time alone with the Father, much time in prayer.
+> The result was that He could give to His disciples what He received from the Father.
+
+We should also strive to be with Jesus, to learn from Jesus, not only that we may 'give' Jesus to others but that they may know that what we give them (and who they belong to) is Jesus!
+
+"I am glorified in them" -- Wow!
+Just as the Father is glorified in the Son (v. 1), so also the Son is glorified in His disciples.
+That is why we pray for the disciples, for the Church, that they may glorify the Son!
 
 ### 12-19
 
