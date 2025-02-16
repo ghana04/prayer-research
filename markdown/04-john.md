@@ -84,14 +84,41 @@ _17 Sanctify them in the truth; your word is truth._
 _18 As you sent me into the world, so I have sent them into the world._
 _19 And for their sake I consecrate myself, that they also may be sanctified in truth._
 
-Jesus spontaneously prayed this prayer right after speaking.
+Jesus makes Himself, His work, the focus of verse 12.
+This is appropriate, and we can in a similar way pray about the work of Christ, especially how it relates to His people.
+
+The words of Christ give us that which is His (such as His joy) even though He is not with us!
+
+Jesus is also not afraid to talk about the realities of the difference between His people and the world:
+
+- His people keep His word, just as they are kept by Christ.
+- The world hates His people, because they are not of the world.
+
+He also addresses the identity (v. 16) of His people.
+
+Here is the first request that Jesus raises to the Father: "Sanctify them in the truth" (v17).
 
 ### 20-26
 
-*20 “I do not ask for these only, but also for those who will believe in me through their word,*
-*21 that they may all be one, just as you, Father, are in me, and I in you, that they also may be in us, so that the world may believe that you have sent me.*
-*22 The glory that you have given me I have given to them, that they may be one even as we are one,*
-*23 I in them and you in me, that they may become perfectly one, so that the world may know that you sent me and loved them even as you loved me.*
-*24 Father, I desire that they also, whom you have given me, may be with me where I am, to see my glory that you have given me because you loved me before the foundation of the world.*
-*25 O righteous Father, even though the world does not know you, I know you, and these know that you have sent me.*
-*26 I made known to them your name, and I will continue to make it known, that the love with which you have loved me may be in them, and I in them.”*
+_20 “I do not ask for these only, but also for those who will believe in me through their word,_
+_21 that they may all be one, just as you, Father, are in me, and I in you, that they also may be in us, so that the world may believe that you have sent me._
+_22 The glory that you have given me I have given to them, that they may be one even as we are one,_
+_23 I in them and you in me, that they may become perfectly one, so that the world may know that you sent me and loved them even as you loved me._
+_24 Father, I desire that they also, whom you have given me, may be with me where I am, to see my glory that you have given me because you loved me before the foundation of the world._
+_25 O righteous Father, even though the world does not know you, I know you, and these know that you have sent me._
+_26 I made known to them your name, and I will continue to make it known, that the love with which you have loved me may be in them, and I in them.”_
+
+Jesus then brings his second request, which is for unity between all who believe in Him (v. 20).
+This unity is important for the witness of the gospel (v. 21).
+
+### Summary of John 17
+
+In praying like Christ, we can do the following:
+
+- We can mention statements of truth (although God is all-knowing), and ideally all these will be tied back to the person and the work of Jesus.
+- Our prayers can be primarily for the believers, and for that which will enable effective gospel ministry (sanctification and unity).
+
+In general:
+
+- **To whom**: The Father
+- **For whom**: The disciples and believers who are yet to come to faith
