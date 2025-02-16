@@ -96,6 +96,10 @@ As Moses' face shone after spending time with God on the mountain, so now Jesus'
 
 Parallel to Matthew 9:38.
 
+
+
+Parallel to Matthew 11:25-27.
+
 ## Luke 11:1-2 | Praying before teaching the Our Father
 
 *Now Jesus was praying in a certain place, and when He finished, one of his disciples said to him, "Lord, teach us to pray, as John taught his disciples."*

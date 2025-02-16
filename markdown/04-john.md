@@ -74,15 +74,17 @@ That is why we pray for the disciples, for the Church, that they may glorify the
 
 ### 12-19
 
-*12 While I was with them, I kept them in your name, which you have given me.*
-*I have guarded them, and not one of them has been lost except the son of destruction, that the Scripture might be fulfilled.*
-*13 But now I am coming to you, and these things I speak in the world, that they may have my joy fulfilled in themselves.*
-*14 I have given them your word, and the world has hated them because they are not of the world, just as I am not of the world.*
-*15 I do not ask that you take them out of the world, but that you keep them from the evil one.*
-*16 They are not of the world, just as I am not of the world.*
-*17 Sanctify them in the truth; your word is truth.*
-*18 As you sent me into the world, so I have sent them into the world.*
-*19 And for their sake I consecrate myself, that they also may be sanctified in truth.*
+_12 While I was with them, I kept them in your name, which you have given me._
+_I have guarded them, and not one of them has been lost except the son of destruction, that the Scripture might be fulfilled._
+_13 But now I am coming to you, and these things I speak in the world, that they may have my joy fulfilled in themselves._
+_14 I have given them your word, and the world has hated them because they are not of the world, just as I am not of the world._
+_15 I do not ask that you take them out of the world, but that you keep them from the evil one._
+_16 They are not of the world, just as I am not of the world._
+_17 Sanctify them in the truth; your word is truth._
+_18 As you sent me into the world, so I have sent them into the world._
+_19 And for their sake I consecrate myself, that they also may be sanctified in truth._
+
+Jesus spontaneously prayed this prayer right after speaking.
 
 ### 20-26
 
