@@ -96,7 +96,7 @@ As Moses' face shone after spending time with God on the mountain, so now Jesus'
 
 Parallel to Matthew 9:38.
 
-
+## Luke 10:21-22 | Jesus thanking God for revealing these things to children
 
 Parallel to Matthew 11:25-27.
 
