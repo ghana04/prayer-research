@@ -51,7 +51,38 @@ It seems that their understanding that "you acted in ignorance" (v. 17) enabled 
 
 - **How**: Corporately, even in the presence of the ignorant
 
-## Acts 4:31
+## Acts 4:24-31
+
+_23 When they were released, they went to their friends and reported what the chief priests and the elders had said to them._
+_24 And when they heard it, they lifted their voices together to God and said,_
+_“Sovereign Lord, who made the heaven and the earth and the sea and everything in them,_
+_25 who through the mouth of our father David, your servant, said by the Holy Spirit,_
+
+_“‘Why did the Gentiles rage,_
+    _and the peoples plot in vain?_
+_26 The kings of the earth set themselves,_
+    _and the rulers were gathered together,_
+    _against the Lord and against his Anointed’ —_
+
+_27 for truly in this city there were gathered together against your holy servant Jesus, whom you anointed, both Herod and Pontius Pilate, along with the Gentiles and the peoples of Israel,_
+_28 to do whatever your hand and your plan had predestined to take place._
+_29 And now, Lord, look upon their threats and grant to your servants to continue to speak your word with all boldness,_
+_30 while you stretch out your hand to heal, and signs and wonders are performed through the name of your holy servant Jesus.”_
+_31 And when they had prayed, the place in which they were gathered together was shaken, and they were all filled with the Holy Spirit and continued to speak the word of God with boldness._
+
+- **To whom:** God the Father
+- **How:** Corporately as believers
+- **Content:** Title, descriptors, quote from OT, application to today, entreaty for believers
+- **Why:** Need for boldness to continue speaking the word of God
+
+The pattern of prayer is seen again here where they start with a title, then a descriptor, and then the rest of the prayer.
+The request is to proclaim the word of God, which the world will try to silence.
+
+I love how they speak about Jesus: 
+
+> "your holy servant Jesus"
+
+This after referring to themselves as servants as well.
 
 ## Acts 6:4
 
