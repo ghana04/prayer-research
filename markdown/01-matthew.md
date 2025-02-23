@@ -157,6 +157,6 @@ _46 And about the ninth hour Jesus cried out with a loud voice, saying, “Eli, 
 
 - **Where:** On the cross, in the middle of a time of intense suffering
 - **To whom:** The Father
-- **What:** Question
-- **Why:** Maybe to process the intense feelings of neglect associated with suffering, but certainly also to point to Christ as the fulfillment of Scripture
+- **What:** Lamentation
+- **Why:** Maybe to process the intense feelings of neglect associated with suffering, but certainly also to point to Himself as the fulfillment of Scripture
 - **How:** With a loud voice, also in Hebrew and using repetition, quoting OT Scripture
