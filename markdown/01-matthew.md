@@ -149,4 +149,14 @@ Jesus prays the same prayer three times in relatively short succession.
 At then end, He seems to have come to know that the will of the Father is indeed that He should take the path of the cross.
 
 > It is as if repeated time with the Father in prayer has brought resolution and instilled the necessary clarity and resolve needed to go forward in the Spirit.
-> This is similar to Paul, who prayed three times that God would remove the thorn in his flesh (2 Cor 12:7-10), which brought a revelation that was also the resolution.
+> This is similar to Paul, who prayed three times that God would remove the thorn in his flesh (2 Cor 12:7-10), which brought a revelation/answer that was also the resolution.
+
+## Matthew 27:46 | Why have you forsaken me?
+
+_46 And about the ninth hour Jesus cried out with a loud voice, saying, “Eli, Eli, lema sabachthani?” that is, “My God, my God, why have you forsaken me?”_
+
+- **Where:** On the cross, in the middle of a time of intense suffering
+- **To whom:** The Father
+- **What:** Question
+- **Why:** Maybe to process the intense feelings of neglect associated with suffering, but certainly also to point to Christ as the fulfillment of Scripture
+- **How:** With a loud voice, also in Hebrew and using repetition, quoting OT Scripture

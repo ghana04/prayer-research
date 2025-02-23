@@ -245,3 +245,29 @@ Even after the strengthening, His soul was still in agony.
 However, this agony drove Him to pray _more earnestly_.
 
 The answer to increased tribulation was increased prayer.
+
+## Luke 23:34 | Father forgive them
+
+_34 And Jesus said, “Father, forgive them, for they know not what they do.”_
+
+- **Where:** On the cross, in the middle of a time of intense suffering
+- **To whom:** The Father
+- **Beneficiaries:** Those are persecuting Him
+- **What:** Forgiveness of enemies
+
+Again, Jesus prays asking His Father for something, and adding descriptive information.
+We should have the freedom to add descriptive information as well, as long as it's true and does not reflect anxiety over whether God knows what is happening.
+
+## Luke 23:46 | Into your hands
+
+_46 Then Jesus, calling out with a loud voice, said, “Father, into your hands I commit my spirit!” And having said this he breathed his last._
+
+- **Where:** On the cross, in the middle of a time of intense suffering
+- **To whom:** The Father
+- **Beneficiaries:** Jesus Himself
+- **What:** Prayer of trust
+
+This is such a beautiful prayer.
+A simple prayer at the end of a horrifying ordeal of suffering, that places total trust in God.
+
+How blessed is every man that, after a lifetime of taking up his cross, can pray this sweet prayer as he passes into eternity.
