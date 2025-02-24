@@ -84,9 +84,20 @@ I love how they speak about Jesus:
 
 This after referring to themselves as servants as well.
 
-## Acts 6:4
+## Acts 6:4-6
 
-## Acts 6:6
+_4 But we will devote ourselves to prayer and to the ministry of the word._
+_5 And what they said pleased the whole gathering, and they chose Stephen, a man full of faith and of the Holy Spirit,_
+_and Philip, and Prochorus, and Nicanor, and Timon, and Parmenas, and Nicolaus, a proselyte of Antioch._
+_6 These they set before the apostles, and they prayed and laid their hands on them._
+
+The primary issue here was that the twelve were being involved in dealing with the issues of charity when they wanted to focus on the ministry of the word.
+As they say in verse 2, "It is not right that we should give up preaching the word of God to serve tables."
+
+However, in addressing the rest of the disciples, the twelve specifically said "we will devote ourselves to _prayer_ and to the _ministry of the word_". 
+
+In other words, for them the ministry of the word goes hand-in-hand with prayer.
+We can't devote ourselves to the ministry of the word without prayer.
 
 ## Acts 8:15
 
