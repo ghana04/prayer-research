@@ -8,7 +8,7 @@ We should also as groups _devote_ ourselves to prayer.
 
 - **How**: Corporately as believers
 
-## Acts 1:24-25 Disciples pray for replacement
+## Acts 1:24-25 |  Disciples pray for replacement
 
 _24 And they prayed and said, “You, Lord, who know the hearts of all, show which one of these two you have chosen_
 _25 to take the place in this ministry and apostleship from which Judas turned aside to go to his own place.”_
@@ -30,7 +30,7 @@ However, there is never the sense that they are informing God, they just state w
 - **Content**: Entreaty for guidance
 - **Why**: To fulfill Scripture as it relates to the work of the ministry.
 
-## Acts 2:42
+## Acts 2:42 | Devoted themselves to prayer
 
 _24 And they devoted themselves to the apostles' teaching and the fellowship, to the breaking of bread and the prayers._
 
@@ -39,7 +39,7 @@ We need to devote ourselves to prayer.
 
 - **How**: Corporately as believers
 
-## Acts 3:1
+## Acts 3:1 | At the temple at the hour of prayer
 
 _1 Now Peter and John were going up to the temple at the hour of prayer, the ninth hour._
 
@@ -51,7 +51,7 @@ It seems that their understanding that "you acted in ignorance" (v. 17) enabled 
 
 - **How**: Corporately, even in the presence of the ignorant
 
-## Acts 4:24-31
+## Acts 4:24-31 | Prayer for boldness
 
 _23 When they were released, they went to their friends and reported what the chief priests and the elders had said to them._
 _24 And when they heard it, they lifted their voices together to God and said,_
@@ -84,7 +84,7 @@ I love how they speak about Jesus:
 
 This after referring to themselves as servants as well.
 
-## Acts 6:4-6
+## Acts 6:4-6 | Devoting themselves to prayer and the ministry of the word
 
 _4 But we will devote ourselves to prayer and to the ministry of the word._
 _5 And what they said pleased the whole gathering, and they chose Stephen, a man full of faith and of the Holy Spirit,_
@@ -99,15 +99,57 @@ However, in addressing the rest of the disciples, the twelve specifically said "
 In other words, for them the ministry of the word goes hand-in-hand with prayer.
 We can't devote ourselves to the ministry of the word without prayer.
 
-## Acts 8:15
+## Acts 8:15-17 | Praying and laying on of hands
 
-## Acts 8:22
+_14 Now when the apostles at Jerusalem heard that Samaria had received the word of God, they sent to them Peter and John,_
+_15 who came down and prayed for them that they might receive the Holy Spirit,_
+_16 for he had not yet fallen on any of them, but they had only been baptized in the name of the Lord Jesus._
+_17 Then they laid their hands on them and they received the Holy Spirit._
 
-## Acts 8:24
+- **Beneficiaries:** New believers
+- **Why:** For new believers to receive the Holy Spirit
+- **How:** While or with laying on of hands
 
-## Acts 9:11
+As Jesus laid His hands on the little children and blessed them, so the disciples are laying hands on the new believers and praying for them that they might receive the Holy Spirit.
+
+## Acts 8:22-24 | Simon the magician
+
+_22 Repent, therefore, of this wickedness of yours, and pray to the Lord that, if possible, the intent of your heart may be forgiven you._
+_23 For I see that you are in the gall of bitterness and in the bond of iniquity.”_
+_24 And Simon answered, “Pray for me to the Lord, that nothing of what you have said may come upon me.”_
+
+- **To whom:** The Lord
+- **Beneficiary:** Simon the magician
+- **Content:** Forgiveness
+- **Why:** Seeking to buy the power to have people receive the Holy Spirit when he lays hands on them
+
+Something that comes up as a regular theme in the Bible seems to be people who defer direct engagement with God, who rather want others to intercede on their behalf.
+In this case, Simon is specifically told to pray to God, but he then asks Peter to pray on his behalf.
+
+Interestingly, it seems that the prayer does not contain the repentance, but that the repentance should be made and then the prayer.
+Possibly that repentance wasn't seen as something to confess to God, but something to undertake in our heart, and then go to God asking for forgiveness. 
+
+## Acts 9:11 | Ananias should go to Paul
+
+_11 And the Lord said to him, "Rise and got to the street called Straight,_
+_and at the house of Judas look for a man of Tarsus named Saul, for behold, he is praying,_
+_12 and he has seen in a vision a man named Ananias come in and lay his hands on him so that he might regain his sight."_
+
+Nothing is said about this prayer, except that it happened.
+
+What is precious to me is that God notices prayer.
+God, who is all-knowing, mentions it, even though it wouldn't be strictly necessary for Ananias to know.
 
 ## Acts 9:40
+
+_40 But Peter put them all outside, and knelt down and prayed; and turning to the body he said, "Tabitha, arise."_
+
+- **Beneficiaries**: Tabitha, but also those whom she served.
+- **How**: Alone, and kneeling.
+- **Why**: To restore to life a widow that blessed the church.
+
+Peter, as a disciple of Christ, puts people out that he may pray alone to God.
+He also kneels down, which is most likely what they picked up from Jesus.
 
 ## Acts 10:2
 
