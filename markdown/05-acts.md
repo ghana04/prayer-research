@@ -140,7 +140,7 @@ Nothing is said about this prayer, except that it happened.
 What is precious to me is that God notices prayer.
 God, who is all-knowing, mentions it, even though it wouldn't be strictly necessary for Ananias to know.
 
-## Acts 9:40
+## Acts 9:40 | Peter called to pray for Tabitha
 
 _40 But Peter put them all outside, and knelt down and prayed; and turning to the body he said, "Tabitha, arise."_
 
@@ -151,15 +151,54 @@ _40 But Peter put them all outside, and knelt down and prayed; and turning to th
 Peter, as a disciple of Christ, puts people out that he may pray alone to God.
 He also kneels down, which is most likely what they picked up from Jesus.
 
-## Acts 10:2
+Interestingly, this is the second time that someone approaches Peter that he may pray on their behalf (Simon the magician being the first).
 
-## Acts 10:4
+## Acts 10:1-4 | Cornelius' CV
 
-## Acts 10:9
+_1 At Caesarea there was a man named Cornelius, a centurion of what was known as the Italian Cohort,_
+_2 a devout man who feared God with all his household, gave alms generously to the people, and prayed continually to God._
+_3 About the ninth hour of the day he saw clearly in a vision an angel of God come in and say to him, “Cornelius.”_
+_4 And he stared at him in terror and said, “What is it, Lord?”_
+_And he said to him, “Your prayers and your alms have ascended as a memorial before God._
 
-## Acts 10:30-31
+Cornelius was a devout man, which entailed three characteristics:
 
-## Acts 11:5
+1. He feared God
+2. He gave alms
+3. He prayed continually
+
+These are the descriptors that Luke chose.
+Maybe it was the most prominent anyway, and not necessarily chosen to emphasize them over against other things, but it is still meaningful to see that these things are the things that would have resonated with the early church (and still with us today).
+
+## Acts 10:9 | Peter went to the housetop to pray
+
+_9 The next day, as they were on their journey and approaching the city, Peter went up on the housetop about the sixth hour to pray._
+
+Interesting similarities between the stories of Cornelius and Peter:
+
+1. Time of day specifically mentioned when the visions appeared to them both.
+2. Prayer features in both of their stories.
+
+Analysis:
+
+- **How/manner:** On the rooftop.
+- **When**: At noon (before lunch).
+
+## Acts 10:30-31 | Cornelius praying when the angel appeared
+
+_30 And Cornelius said, “Four days ago, about this hour, I was praying in my house at the ninth hour, and behold, a man stood before me in bright clothing_
+_31 and said, ‘Cornelius, your prayer has been heard and your alms have been remembered before God._
+
+These verses confirm that Cornelius was also praying when he saw his vision, strengthening the tie between him and Peter.
+God is manifesting Himself to them in the same way, because the dividing wall has been broken down.
+When all peoples draw near to God, He shows mercy to them without making distinction.
+
+## Acts 11:5 | Prayer mentioned in Peter's defense of his actions
+
+_4 But Peter began and explained it to them in order:_
+_5 “I was in the city of Joppa praying, and in a trance I saw a vision, something like a great sheet descending, being let down from heaven by its four corners, and it came down to me._
+
+Peter mentions the fact that he was praying as part of the apologetic.
 
 ## Acts 12:5
 
