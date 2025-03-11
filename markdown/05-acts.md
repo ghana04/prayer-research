@@ -200,25 +200,93 @@ _5 “I was in the city of Joppa praying, and in a trance I saw a vision, someth
 
 Peter mentions the fact that he was praying as part of the apologetic.
 
-## Acts 12:5
+## Acts 12:5 | Prayer for imprisoned Peter
 
-## Acts 12:12
+_5 So Peter was kept in prison, but earnest prayer for him was made to God by the church._
 
-## Acts 13:3
+- **To whom:** God
+- **Beneficiary:** Peter
+- **Why:** For mercy for Peter, since he was imprisoned
+- **How:** Earnestly and corporately (the church)
 
-## Acts 16:13
+This seems to be the only instance where prayer itself is modified (earnest).
+It seems natural that an earnest situation would lead to earnest prayer.
 
-## Acts 16:16
+Would to God that we would grow in earnestness for the kingdom, which would surely result in more earnest prayer.
 
-## Acts 16:25
+## Acts 12:12 | Peter arriving at a house of prayer
+
+_12 When he realized this, he went to the house of Mary, the mother of John whose other name was Mark, where many were gathered together and were praying._
+
+- **How:** Corporately, in a house
+
+## Acts 13:3 | Fasting and praying before sending
+
+_3 Then after fasting and praying they laid their hands on them and sent them off._
+
+- **How:** While fasting
+
+It seems again that praying happened here before the laying on of hands.
+
+## Acts 16:13 | Lydia at the place of prayer
+
+_13 And on the Sabbath day we went outside the gate to the riverside, where we supposed there was a place of prayer, and we sat down and spoke to the women who had come together._
+
+Difficult to really infer much from these passages about prayer itself.
+However, it is interesting that the place that Paul chose to minister was a place of prayer.
+In other words, a place where there were already people who gathered for a 'religious' purpose.
+
+It is in this place that Paul meets Lydia, who is called "a worshiper of God".
+It seems that Paul had a preference to go and evangelize where people were already gathered for something that would provide a platform for evangelism.
+For example, the temple, synagogue, or place of prayer.
+Yet, also the marketplace, so it's not necessarily places of worship.
+
+## Acts 16:16 | Bothered on the way to place of prayer
+
+_16 As we were going to the place of prayer, we were met by a slave girl who had a spirit of divination and brought her owners much gain by fortune-telling._
+
+Again, not much to glean about prayer, which seems more incidental in this case.
+
+## Acts 16:25 | Paul and Silas praying in prison
+
+_25 About midnight Paul and Silas were praying and singing hymns to God, and the prisoners were listening to them,_
+
+- **How:** Together with singing hymns.
+- **When:** At midnight.
+- **Where:** In prison.
+
+Prayer was offered up at all times and places, in prison at midnight.
+When it is not possible to lock the door behind you as Jesus taught, then it is appropriate to pray out loud where others can hear.
+
+This also is the second time when prayer and prisons go together, in both cases God is glorified as the deliverer.
+In both cases, there is a felt human inability to save.
+
+> The Lord sets the prisoners free; (Psalm 146:7)
 
 ## Acts 20:36
 
+_36 And when he had said these things, he knelt down and prayed with them all._
+
+- **How:** While kneeling down, with other believers
+- **When:** Before sailing off
+- **Where:** Miletus
+
+Paul follows the example of Jesus in kneeling, and in this case he kneels while praying in community.
+
 ## Acts 21:5
 
-## Acts 20:36
+_5 When our days there were ended, we departed and went on our journey, and they all, with wives and children, accompanied us until we were outside the city._
+_And kneeling down on the beach, we prayed_
 
-## Acts 21:5
+- **How:** While kneeling down, with other believers, which included wives and children
+- **When:** Before sailing off, which signified the ending of the coming together
+- **Where:** The beach at Tyre, outside the city
+
+It's clear that prayer was a communal activity for the early church, and appropriate for when greeting people on travels.
+Again also there is kneeling down during this communal prayer.
+
+Another interesting thing is that it was public...and not.
+It was not public because it was outside the city, yet it was in the open for anyone walking past to see.
 
 ## Acts 22:17
 
