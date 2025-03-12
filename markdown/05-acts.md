@@ -263,7 +263,7 @@ In both cases, there is a felt human inability to save.
 
 > The Lord sets the prisoners free; (Psalm 146:7)
 
-## Acts 20:36
+## Acts 20:36 | Kneeling down to pray at Miletus
 
 _36 And when he had said these things, he knelt down and prayed with them all._
 
@@ -273,7 +273,7 @@ _36 And when he had said these things, he knelt down and prayed with them all._
 
 Paul follows the example of Jesus in kneeling, and in this case he kneels while praying in community.
 
-## Acts 21:5
+## Acts 21:5 | Kneeling down to pray at the beach of Tyre
 
 _5 When our days there were ended, we departed and went on our journey, and they all, with wives and children, accompanied us until we were outside the city._
 _And kneeling down on the beach, we prayed_
@@ -288,9 +288,42 @@ Again also there is kneeling down during this communal prayer.
 Another interesting thing is that it was public...and not.
 It was not public because it was outside the city, yet it was in the open for anyone walking past to see.
 
-## Acts 22:17
+## Acts 22:17 | Paul praying in the temple
 
-## Acts 27:29
+_17 “When I had returned to Jerusalem and was praying in the temple, I fell into a trance_
 
-## Acts 28:8
+- **Where:** In the temple at Jerusalem.
 
+Paul becomes another example of a few people in Acts who receive instruction/a vision while praying.
+Again, even though the temple did not represent the true worship of God, it was probably still where many pious Jews would have gathered, and the disciples still went there to pray.
+
+## Acts 27:29 | Unbelievers praying in a time of distress.
+
+_29 And fearing that we might run on the rocks, they let down four anchors from the stern and prayed for day to come._
+
+Unbelievers praying in a time of distress.
+
+## Acts 27:35 | Paul giving thanks in the presence of all
+
+_35 And when he had said these things, he took bread, and giving thanks to God in the presence of all he broke it and began to eat._
+
+It was customary it seems for the disciples to thank God for their food before eating.
+Here again, a disciple was not ashamed to pray and thank God before others.
+
+- **Content:** Thanksgiving for food
+- **How:** With the bread in hand
+- **To whom:** God
+- **When:** Before eating
+- **Where:** On the ship, in the presence of all the sailors
+
+## Acts 28:8 | Paul prays for the father of Publius
+
+_8 It happened that the father of Publius lay sick with fever and dysentery._
+_And Paul visited him and prayed, and putting his hands on him, healed him._
+
+Again it almost feels like the laying on of hands happens after the prayer, but can't say conclusively.
+
+- **Beneficiaries:** The father of Publius
+- **Content:** Probably intervention, a prayer for healing
+- **Where:** At the sickbed of the father of Publius
+- **Why:** To heal the father of Publius
