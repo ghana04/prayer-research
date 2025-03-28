@@ -54,3 +54,32 @@ Paul here is praying for a distinct group of people, categorized along ethnic li
 It also happens to be the group that he belongs to, and because of his great love for them he asks God for their salvation.
 
 It is noteworthy also that Paul's prayer was an outflow of the desire of his heart, not a generic platitude that he prayed because he felt it was appropriate.
+
+## Romans 12:12 | Be constant in prayer
+
+_12 Rejoice in hope, be patient in tribulation, be constant in prayer._
+
+- **Manner:** Constant
+
+What does it mean to be constant?
+Does it mean constantly praying (e.g. a lot) or being consistent in setting out time?
+Both?
+
+## Romans 15:30 | Strive with Paul in prayer for deliverance
+
+_30 I appeal to you, brothers, by our Lord Jesus Christ and by the love of the Spirit, to strive together with me in your prayers to God on my behalf,_
+_31 that I may be delivered from the unbelievers in Judea, and that my service for Jerusalem may be acceptable to the saints,_
+_32 so that by God's will I may come to you with joy and be refreshed in your company._
+
+- **Beneficiaries:** Paul
+- **Content:** Intervention and supplication
+- **Manner:** Striving with Paul
+- **To whom:** God
+- **Why:**
+  - Deliverance from unbelievers 
+  - For Paul's service to be acceptable to the saints
+  - That Paul may come to them
+
+Paul is really living by and through Christ.
+Even in appealing to fellow believers, he does it by Christ and the love of the Spirit.
+He is not just doing things in the manner of the natural man, but everything is seen through the trinitarian lifestyle approach.
