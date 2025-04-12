@@ -2,5 +2,5 @@
 
 - Someone's heart to be changed.
 - Decrees or pronouncements.
-
+- Earthly advancement
 
