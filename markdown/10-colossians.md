@@ -53,12 +53,45 @@ He would surely also then pray for them what he does for the Ephesians, that the
 
 ## Colossians 4:2
 
+_2 Continue steadfastly in prayer, being watchful in it with thanksgiving._
 
+- **Beneficiaries:** Unspecified
+- **Content:** Supplication and thanksgiving
+- **Manner:** Steadfast, watchful, and with thanksgiving
+- **To whom:** Unspecified
+- **Why:** Unspecified
+
+Assuming Jesus' last night in the garden of Gethsemane as backdrop, the watchfulness here probably also has the same idea of "watch and pray, that you may not enter into temptation".
+Our time of prayer is supposed to be the time of alertness, being awake.
+When we close our natural eyes in prayer our spiritual eyes should be open to seek the Lord's grace.
+
+Also for Paul, it is again imperative that our relationship with God be one characterized by thankfulness.
+From Col 3:15-17, we see that thankfulness should be our state of being (v. 15), that it should be toward God (v. 16), and that we express it toward the Father through Christ (v. 17).
+In fact, in everything we do, we should do it while giving thanks to the Father.
 
 ## Colossians 4:3
 
+_3 At the same time, pray also for us, that God may open to us a door for the word, to declare the mystery of Christ, on account of which I am in prison --_
+_4 that I may make it clear, which is how I ought to speak._
 
+- **Beneficiaries:** Paul and his companions
+- **Content:** Supplication ("that God may open")
+- **To whom:** God.
+- **When:** While praying generally (v. 2)
+- **Why:** For the proclamation of Christ, that it would be clear
+
+Interesting that in the dynamics between Paul and the people of Colossae, it seems the he and his companions pray for them for growth, whilst asking them to pray for their work.
 
 ## Colossians 4:12
 
+_12 Epaphras, who is one of you, a servant of Christ Jesus, greets you,_
+_always struggling on your behalf in his prayers,_
+_that you may stand mature and fully assured in all the will of God._
 
+- **Beneficiaries:** The church at Colossae
+- **Content:** That God would grant something general.
+- **Manner:** Struggling
+- **When:** Always
+- **Why:** That the church may be "mature and fully assured in al the will of God"
+
+Surely this idea of struggling in prayer is what Paul had in mind in Colossians 2:1.
