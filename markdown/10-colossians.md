@@ -16,7 +16,7 @@ _4 since we heard of your faith in Christ Jesus and of the love that you have fo
 The maturity of Paul is staggering, he is rejoicing and thanking God because of the faith of the church and their love towards other believers.
 He is also not shy to say that he prays for them, something that although done in secret is spoken of to encourage and probably disciple the Colossians: we are a people who pray for one another.
 
-## Colossians 1:9
+## Colossians 1:9 | Paul's unceasing prayer for knowledge and power
 
 _9 And so, from the day we heard, we have not ceased to pray for you,_
 _asking that you may be filled with the knowledge of his will in all spiritual wisdom and understanding,_
@@ -51,7 +51,7 @@ Even as Paul gives thanks to the Father for their faith and love, he prays that 
 However, for them it seems that he links it more to their inheritance.
 He would surely also then pray for them what he does for the Ephesians, that they would know the hope and glorious inheritance that God has for the saints (Eph 1:18).
 
-## Colossians 4:2
+## Colossians 4:2 | Be watchful in prayer and give thanks
 
 _2 Continue steadfastly in prayer, being watchful in it with thanksgiving._
 
@@ -69,7 +69,7 @@ Also for Paul, it is again imperative that our relationship with God be one char
 From Col 3:15-17, we see that thankfulness should be our state of being (v. 15), that it should be toward God (v. 16), and that we express it toward the Father through Christ (v. 17).
 In fact, in everything we do, we should do it while giving thanks to the Father.
 
-## Colossians 4:3
+## Colossians 4:3 | Paul's request for prayer for an open door
 
 _3 At the same time, pray also for us, that God may open to us a door for the word, to declare the mystery of Christ, on account of which I am in prison --_
 _4 that I may make it clear, which is how I ought to speak._
@@ -82,7 +82,7 @@ _4 that I may make it clear, which is how I ought to speak._
 
 Interesting that in the dynamics between Paul and the people of Colossae, it seems the he and his companions pray for them for growth, whilst asking them to pray for their work.
 
-## Colossians 4:12
+## Colossians 4:12 | Epaphras' struggle in his prayers
 
 _12 Epaphras, who is one of you, a servant of Christ Jesus, greets you,_
 _always struggling on your behalf in his prayers,_
@@ -95,3 +95,4 @@ _that you may stand mature and fully assured in all the will of God._
 - **Why:** That the church may be "mature and fully assured in al the will of God"
 
 Surely this idea of struggling in prayer is what Paul had in mind in Colossians 2:1.
+It seems that Paul and his disciples were constantly in prayer on behalf of others, and that this was a struggle of sorts.
