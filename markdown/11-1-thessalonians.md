@@ -61,7 +61,11 @@ It seems here that Paul is emphasizing three constants for believers:
 
 This is an instruction for believers, and part of the consistency in our lives should be prayer.
 
-## 1 Thessalonians 5:25 | 
+## 1 Thessalonians 5:25 | Brothers, pray for us
 
-_
+_25 Brothers, pray for us._
 
+- **Beneficiaries:** Paul and his companions
+- **Content:** Supplication (general)
+
+This is a general exhortation, but it seems to be the only thing that Paul asks of the congregations (except for gifts for other congregations).
