@@ -1,6 +1,6 @@
 # 2 Thessalonians
 
-## 2 Thessalonians 1:11 | May God fulfill your every desire to do good
+## 2 Thessalonians 1:11-12 | May God fulfill your every resolve to do good
 
 _11 To this end we always pray for you,_
 _that our God may make you worthy of his calling and may fulfill every resolve for good and every work of faith by his power,_
@@ -22,4 +22,15 @@ That God may make us worthy and fulfill our every resolve for good and every wor
 
 ## 2 Thessalonians 3:1
 
+_Finally, brothers, pray for us,_
+_that the word of the Lord may speed ahead and be honored,_
+_as happened among you,_
+_2 and that we may be delivered from wicked and evil men._
+_For not all have faith._
 
+- **Beneficiaries:** Paul and his companions
+- **Content:** Supplication
+- **Why:** For the spreading of the word and for deliverance from wicked and evil men
+
+As Paul did in Colossians 4:3, here he is again asking the congregation to pray for the effective sharing of the word of the Lord.
+Here Paul adds deliverance, also something which he previously also linked to the prayer of a congregation (Philippians 1:19). 
