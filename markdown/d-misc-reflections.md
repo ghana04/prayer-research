@@ -49,3 +49,85 @@ Let us first ensure we get this 'basic' in place and have it solidified, before 
 This establishes the supremacy of God's will above our own, and will surely better prepare us for discerning more secondary things.
 
 Even in a workplace, a manager will refrain from giving people instructions for a task if they are not executing sufficiently on the instructions for a prior task.
+
+## Reflections on 1 Tim 4:5
+
+_5 for it is made holy by the word of God and prayer._
+
+It seems here that Paul says that created things are in some way elevated ("made holy") by prayer.
+
+From [Jamieson-Fausset-Brown Bible commentary](https://biblehub.com/commentaries/1_timothy/4-5.htm) 
+
+> '"by means of intercessory prayer" (so the Greek)—that is, consecratory prayer in behalf of "the creature" or food'
+
+Although the eucharist is the supreme example of our food taking on a different quality, every other meal can in a lesser way likewise seem to have that effect.
+
+> "Just as in the Lord's Supper, the thanksgiving prayer sanctifies the elements, separating them from their naturally alien position in relation to the spiritual world, and transferring them to their true relation to the new life.
+> So in every use of the creature, thanksgiving prayer has the same effect, and ought always to be used (1Co 10:30, 31)."
+
+How wonderful is that!
+
+The inclusion of the phrase, "the word of God", according to most commentaries, either mean:
+
+1. That the word of God is used in the prayer, for example phrases built using scripture.
+2. That the prayer rests on the foundation of the word of God, which declares all foods to be clean and a gift from God.
+
+In my view, both can be held to without making too much about it, since both are good general principles to follow.
+
+From conversation with Stephan:
+
+- In the past, food was made appropriate (sanctified/made holy) to be eaten by the priests in the Levitical system (old covenant).
+- It would make sense that for the new covenant priesthood of believers, food would also be 'set apart'.
+- This happens, however, not by the food itself or the handling thereof, but by a spiritual act: thanksgiving.
+- This thanksgiving is based on the word of God and would benefit from using its language.
+
+Other scriptures that have implications on the act of thanksgiving:
+
+- **Psalm 145:15-16** | The eyes of all look to you, and you give them their food in due season.
+  You open your hand; you satisfy the desire of every living thing.
+- **Matthew 14:19** | Then he ordered the crowds to sit down on the grass, and taking the five loaves and the two fish, he looked up to heaven and said a blessing.
+  Then he broke the loaves and gave them to the disciples, and the disciples gave them to the crowds.
+- **Matthew 15:36** | he took the seven loaves and the fish, and having given thanks he broke them and gave them to the disciples, and the disciples gave them to the crowds.
+- **Luke 22:17-19** | 17 And he took a cup, and when he had given thanks he said, “Take this, and divide it among yourselves.
+  18 For I tell you that from now on I will not drink of the fruit of the vine until the kingdom of God comes.”
+  19 And he took bread, and when he had given thanks, he broke it and gave it to them, saying, “This is my body, which is given for you.
+  Do this in remembrance of me.”
+- **Acts 10:15** | And the voice came to him again a second time, “What God has made clean, do not call common.”
+- **Acts 27:35** | And when he had said these things, he took bread, and giving thanks to God in the presence of all he broke it and began to eat.
+- **1 Cor 10:30** | If I partake with thankfulness, why am I denounced because of that for which I give thanks?
+
+## Reflections on 1 Cor 10:27-33
+
+**1 Cor 10:27-33**
+
+_27 If one of the unbelievers invites you to dinner and you are disposed to go,_
+_eat whatever is set before you without raising any question on the ground of conscience._
+_28 But if someone says to you, “This has been offered in sacrifice,” then do not eat it,_
+_for the sake of the one who informed you, and for the sake of conscience—_
+_29 I do not mean your conscience, but his._
+_For why should my liberty be determined by someone else's conscience?_
+_30 If I partake with thankfulness, why am I denounced because of that for which I give thanks?_
+_31 So, whether you eat or drink, or whatever you do, do all to the glory of God._
+_32 Give no offense to Jews or to Greeks or to the church of God,_
+_33 just as I try to please everyone in everything I do,_
+_not seeking my own advantage, but that of many, that they may be saved._
+
+The difficulty in this passage is verse 29.
+As [Barnes](https://biblehub.com/commentaries/1_corinthians/10-29.htm) puts it:
+
+> "There is much difficulty in this clause; for as it now stands, it seems to be entirely contradictory to what the apostle had been saying."
+
+Seems like it's either an objection that is being quoted as if from a Corinthian church member:
+
+> "why should my liberty be determined by someone else's conscience?
+> If I partake with thankfulness, why am I denounced because of that for which I give thanks?"
+
+It's likely either that or Paul is saying something along lines of "Unless my conscience bears witness to me that I shouldn't, I will partake of that which is set before me.
+I won't try and gauge every single person's conscience who is at the table in an over-the-top way, where (having considered them all already) I (for example) ask them 'does this affect your conscience?'."
+
+As Barnes further states, quoting a paraphrase from Doddridge:
+
+> "I speak only of acts obvious to human observation: for as to what immediately lies between God and my own soul, why is my liberty to be judged, arraigned, condemned at the bar of another man's conscience?"
+
+In other words, Paul is explaining why he can eat the meat offered to idols in verse 27, even if the unbeliever might have a conscience issue.
+However, when it is made known ("obvious to human observation"), then use your freedom to abstain.
