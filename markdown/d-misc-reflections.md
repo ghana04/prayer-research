@@ -131,3 +131,15 @@ As Barnes further states, quoting a paraphrase from Doddridge:
 
 In other words, Paul is explaining why he can eat the meat offered to idols in verse 27, even if the unbeliever might have a conscience issue.
 However, when it is made known ("obvious to human observation"), then use your freedom to abstain.
+
+## Reflections on suffering from Hebrews 5:8 and Romans 5:3-5
+
+Why is there suffering in the life of a believer?
+
+Suffering is a unique instrument in the hand of God, used to produce two things from these passages:
+
+1. Learning environment for obedience
+2. Endurance (which in turn produces character, which in turn produces hope)
+
+Suffering is where we learn obedience.
+In stead of just wishing it away, we should seek answer "what does obedience look like in this time?".
