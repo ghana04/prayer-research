@@ -143,3 +143,40 @@ Suffering is a unique instrument in the hand of God, used to produce two things 
 
 Suffering is where we learn obedience.
 In stead of just wishing it away, we should seek answer "what does obedience look like in this time?".
+
+At least according to James 5:13, and the example of Jesus in Gethsemane, it should be a time of prayer.
+
+## Reflections on James 5:14-16
+
+_14 Is anyone among you sick?_
+_Let him call for the elders of the church, and let them pray over him, anointing him with oil in the name of the Lord._
+_15 And the prayer of faith will save the one who is sick, and the Lord will raise him up._
+_And if he has committed sins, he will be forgiven._
+_16 Therefore, confess your sins to one another and pray for one another, that you may be healed._
+_The prayer of a righteous person has great power as it is working._
+
+We are instructed to pray for people that the Lord might raise them up.
+In this way we re-enact the pattern of death followed by resurrection, which is the Lord's doing.
+This re-enactment brings glory to God by being a witness to Christ.
+
+So how does praying and confessing contribute to this, or why does God require it as part of this work of resurrection?
+Maybe confession is part of it because that which God wants to resurrect must be blameless.
+If we confess our sins, God is faithful to cleanse us.
+That which is cleansed is proper to be resurrected, that which is filthy should die.
+
+Prayer is probably required because of the implicit way it puts trust in God rather than the works of man.
+Jesus prayed to the Father before His resurrection, on multiple times, the last one being the commending of His spirit into the Father's hands.
+
+As with Christ, we might be in situations where salvation or deliverance is possible by our own hands, just like He was able to call upon angels and end the entire mock trial.
+Yet if we spent time with the Father, we could discern that He intends for us to drink the cup, not work our way out of it.
+This will point to our faith in Him, that we entrust Him to raise us up and deliver us rather than seeking to deliver ourselves.
+
+However, it's not always like this, and we must discern.
+Jesus also escaped the hands of those who wanted to throw Him off the cliff, because His time has not yet come.
+In many situations, He got out of trials by reasoning from the scriptures.
+Like Paul, we might have to climb in a basket so that our friends can let us down the wall to safety, rather than waiting on God to change the situation supernaturally.
+
+God is going to bring us to places where we will die.
+It will be uncomfortable, and we'll wish to avoid it.
+But in that place there will be the opportunity for resurrection, for our benefit and to the glory of God.
+This will prepare us for the final death and resurrection, where we'll have good confidence and faith in God that he'll raise us again as He has been faithful to do many times before.
