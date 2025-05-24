@@ -279,3 +279,58 @@ In the three instances where prayer is mentioned:
 1. Exhortation for husbands to live with their wives in an understanding way, so that their prayers would not be hindered.
 2. Exhortation for the church to live in a godly way since God hears the prayers of the righteous (amongst other reasons).
 3. Exhortation for the church to live in self-controlled way for the sake of their prayers.
+
+## Reflections on ## 1 John 5:16
+
+_16 If anyone sees his brother committing a sin not leading to death, he shall ask, and God will give him life—_
+_to those who commit sins that do not lead to death._
+_There is sin that leads to death; I do not say that one should pray for that._
+
+This verse sets out a clear precedent of someone who is not sinning praying for someone who is.
+Not that the one praying would be without sin, but that in this case he is not the transgressor.
+
+Very interesting as well is that the answer to the prayer for sin is life.
+Why life?
+
+For God to 'fix' something the answer isn't to remove what is wrong, but to replace what is wrong with what is right.
+Take examples from the rest of scripture:
+
+1. Although the world is under the curse of sin, God will replace it with a new world.
+2. Our sin-affected bodies will be replaced with glorified bodies.
+3. When the first Adam sinned, God raised up a succession of Adams to replace him, culminating in the final Adam.
+4. When Jesus was healing people, He wouldn't remove that which was sick or dead, but rather restored it to its original function.
+
+Therefore the work of God in our lives is not just removing, but replacing.
+He removes our selfishness and replaces it with concern for others.
+He removes our pride and replaces it with humility.
+He removes our fruitless branches so that more fruit might be brought forth.
+
+Yet, there are cases where God does cast away, which is in itself a death sentence.
+He casts the unrepentant sinner into hell.
+Hell is essentially a place where the life-giving and regenerative power of God is not operating.
+That which is decaying keeps on decaying.
+That which dries up keep ons drying up.
+There is no life that rejuvenates or redeems.
+
+For Christ then to be the life means that all God's restorative and redemptive actions happen through Christ.
+Where this world is lifeless and decaying because of sin, the presence of Christ brings life.
+Because Christ is eternal, He is able to eternally sustain those who are in Him.
+Now it is seen partially, but when Christ returns in His glory it will be full and complete.
+
+As a culture we are much more conditioned on the 'throw something away' mentality, which is not an accurate reflection of God.
+For God to throw something away is the most severe form of judgement, it's the final death, to be separated from Him.
+And as far as I can see in the scripture, God is not hasty to do this.
+He waits for the sins of the Amorites to be complete before casting them out.
+He doesn't immediately kill Adam and Eve.
+He doesn't immediately destroy Cain.
+He doesn't discard the human race after we fell into sin.
+He didn't write off the Israelites despite their many sinful rebellions.
+
+Maybe there is a Biblical case to be made for restoring things, showing patience with what is broken, in stead of just casting everything away that breaks.
+We can use the 'life' that we can give to in turn give life to that which we come in contact with.
+A challenge we have is that much of what is produced today is produced with 'dispensable' in mind, for our convenience.
+But God was greatly 'inconvenienced' in sending His Son to restore fallen humanity.
+
+Maybe what we need to witness to the world today is at least the attempt to restore that which is broken.
+If that fails (like the unrepentant sinner), then we cast it away.
+Until then, we attempt to bring life to bear on the object/thing/person.
