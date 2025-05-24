@@ -180,3 +180,102 @@ God is going to bring us to places where we will die.
 It will be uncomfortable, and we'll wish to avoid it.
 But in that place there will be the opportunity for resurrection, for our benefit and to the glory of God.
 This will prepare us for the final death and resurrection, where we'll have good confidence and faith in God that he'll raise us again as He has been faithful to do many times before.
+
+## Reflections on 1 Peter 3:7
+
+_7 Likewise, husbands, live with your wives in an understanding way,_
+_showing honor to the woman as the weaker vessel,_
+_since they are heirs with you of the grace of life,_
+_so that your prayers may not be hindered._
+
+Our prayers are not offered through some channel that is unaffected by our lives.
+Whether or not our prayers are heard are determined by more than just directing them at the true God.
+It is determined more than by just our sincere intent to communicate to God.
+It is determined by our obedience as well.
+
+This builds on the same revelation found in the Old Testament.
+
+Here are a few verses:
+
+_44 “**If** your people go out to battle against their enemy,_
+_by **whatever way you shall send** them,_
+_**and** they pray to the Lord **toward the city that you have chosen** and the house that I have built for your name,_
+_45 **then** hear in heaven their prayer and their plea, and maintain their cause._
+
+~ 1 Kings 8:44-45
+
+_48 if they repent with all their heart and with all their soul_
+_in the land of their enemies, who carried them captive,_
+_and pray to you toward their land, which you gave to their fathers,_
+_the city that you have chosen, and the house that I have built for your name,_
+_49 then hear in heaven your dwelling place their prayer and their plea, and maintain their cause_
+
+~ 1 Kings 8:48-49
+
+_5 “Turn back, and say to Hezekiah the leader of my people,_
+_Thus says the Lord, the God of David your father:_
+_I have heard your prayer; I have seen your tears._
+_Behold, I will heal you._
+_On the third day you shall go up to the house of the Lord,_
+
+~ 2 Kings 20:5
+
+_he regards the prayer of the destitute and does not despise their prayer._
+
+~ Psalm 102:17
+
+_When he is tried, let him come forth guilty; let his prayer be counted as sin!_
+
+~ Psalm 109:7
+
+_Let my prayer be counted as incense before you, and the lifting up of my hands as the evening sacrifice!_
+
+~ Psalm 141:2
+
+_The sacrifice of the wicked is an abomination to the Lord, but the prayer of the upright is acceptable to him._
+
+~ Proverbs 15:8
+
+_The Lord is far from the wicked, but he hears the prayer of the righteous._
+
+~ Proverbs 15:29
+
+_If one turns away his ear from hearing the law, even his prayer is an abomination._
+
+~ Proverbs 28:9
+
+_When you spread out your hands,_
+_I will hide my eyes from you;_
+_even though you make many prayers, I will not listen;_
+_your hands are full of blood._
+
+~ Isaiah 1:15
+
+_14 **if** my people who are called by my name **humble themselves**,_
+_**and pray and seek my face and turn from their wicked ways**,_
+_**then I will hear** from heaven and will forgive their sin and heal their land._
+
+~ 2 Chronicles 7:14
+
+_12 And when he was in distress, he entreated the favor of the Lord his God_
+_**and humbled himself greatly** before the God of his fathers._
+_13 He prayed to him, and **God was moved by his entreaty** and heard his plea and brought him again to Jerusalem into his kingdom._
+_Then Manasseh knew that the Lord was God._
+
+~ 2 Chronicles 33:12-13
+
+When someone is praying for forgiveness, there seems to be less 'conditions'.
+However, the instances specifically mentioning that God heard and that He was moved are those where the repentance went together with sincere weeping and/or humbling.
+
+In general though, it's the effective, fervent prayer of the **righteous** that avails much.
+There are surely thousands of prayers made that are an abomination to God, probably much more than those that He accepts as pleasing incense.
+
+## Reflections on 1 Peter
+
+Peter assumes prayer, his letter doesn't teach on the topic itself but it is of great concern for him that prayers do happen and that any impediments are removed.
+
+In the three instances where prayer is mentioned:
+
+1. Exhortation for husbands to live with their wives in an understanding way, so that their prayers would not be hindered.
+2. Exhortation for the church to live in a godly way since God hears the prayers of the righteous (amongst other reasons).
+3. Exhortation for the church to live in self-controlled way for the sake of their prayers.
