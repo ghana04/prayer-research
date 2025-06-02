@@ -73,10 +73,117 @@ Consecration to God comes through a transcendent reality of Christ having gone b
 Imitation of Christ comes through observation of Christ.
 Glory comes as a gift.
 
-## Day 3 - Jesus guards His bride
+## Day 3 - Jesus brings His bride into His mission
 
-## Day 4 - Jesus patiently bears with His bride
+The mission of Jesus was bigger than the disciples.
+The disciples became part of the mission, not the mission becoming part of the disciples.
+
+As with Adam in the garden, the second Adam had a task from the Father.
+Even when his disciples wanted to suggest another route, because He knew what He was called to do he choose the Father's route and took them along.
+
+How does that look like for us? For me?
+In the New Testament, the emphasis seems much less on 'being somewhere' than 'being someone'.
+It's not that God is calling us to go a certain place as much as He is calling us to become a certain people.
+
+Where does God want us to go to? 
+
+1. Walk by the Spirit
+2. Take up your cross
+3. Rejoice always
+4. Pray without ceasing
+5. Give thanks in all circumstances
+6. Associate with the lowly
+7. Be self-controlled
+
+For us, we are to bring our brides into the mission we have.
+Even for Jesus, He learned obedience through what He suffered.
+He experienced resurrection after crucifixion.
+In that sense, He became obedient (Philippians 2:8), He was made perfect (Hebrews 5:9).
+
+As we as men approach courtship, the idea should be to bring our brides into our mission.
+That mission should be primarily focused on character, although as with Christ it can have location or lifestyle aspects.
+
+## Day 4 - Jesus doesn't start, or typically choose, that which is already esteemed in the world
+
+In fact, He chooses the disciples from all walks of life.
+Even in the natural, Paul says to the Corinthians that most of them were not considered:
+
+- Wise according to worldly standards
+- Powerful
+- Of noble birth
+
+This is what God chooses:
+
+- That which is foolish in the world
+- That which is weak in the world
+- That which is low and despised
+- That which is not
+
+In all these things, there is an opportunity for God to be exalted.
+God shows himself to be exalted amidst the false pride of men, by triumphing over them through that which they pridefully disregarded.
+
+Maybe part of the reason, or even the reason, that an excellent wife is the crown of her husband, is that it reflects something of the husband's way with her.
+The husband is glorified in a flourishing wife.
 
 ## Day 5 - Jesus brings His bride into faith
 
-## Day 6 - Jesus disciples His bride into being like Him
+The road Jesus walks is full of trials and tests.
+He would even ask impossible things of His disciples.
+And when He encounters faith, he rejoices in it and celebrates it!
+
+The trials are not arbitrary, but great opportunities to diagnose the faith in those who experience them.
+
+Therefore for us, we should seek to turn everything that we do during courtship also into an opportunity for faith.
+First in ourselves, but also in the other.
+When plans don't go as we wish -- have faith!
+When trials tempt us to stop being thankful and rejoicing -- have faith!
+When earthly treasures are lost -- have faith!
+
+Then, as we become men who operate on faith, it will be blessing to our households.
+We should encourage faith (John 14:1), celebrate it (Matthew 15:12), cultivate it (Matthew 14:29), pray for it (Luke 22:32). 
+
+## Day 6 - Jesus goes as the Father leads, teaching the bride on the way
+
+Jesus was not primarily driven by customs or human concerns.
+He was driven by the Father and the mission he would fulfill for the Father.
+
+_48 And when his parents saw him, they were astonished._
+_And his mother said to him, “Son, why have you treated us so?_
+_Behold, your father and I have been searching for you in great distress.”_
+_49 And he said to them, “Why were you looking for me?_
+_Did you not know that I must be in my Father's house?”_
+_50 And they did not understand the saying that he spoke to them._
+
+The greater purpose, His calling, keeps Him in Bethany while Lazarus is sick, so that the Father may be glorified.
+This goes against the expectations of the people, and even seems loveless to them (John 11:36-37).
+Even going back is against the hopes of the disciples, since they warn Him of the threat of the Jews that wants to kill Him.
+So, while some were hoping that we would have gone back sooner, and others wanting Him not to go back at all, Jesus goes later so that the Father may be glorified.
+
+The greater purpose, His calling, makes Him go away from Capernaum while everything there is searching for Him (Mark 1:37-38).
+This probably went against the hopes of the people of Capernaum, that He might stay there.
+But Jesus is driven by the mission and purpose He received from the Father (Mark 1:38).
+
+Even when talking to His disciples about the future, He speaks of heaven as His Father's house, where He goes to prepare a room for them.
+
+So as He was on the journey, as He was doing the things that pleased the Father, He took His disciples along with Him and taught them.
+
+## Day 7 - Jesus shares His emotions with His bride, but wrestles it out with His Father
+
+Jesus' emotions were communicated through actions and words.
+Here is a list of actions:
+
+1. Rejoicing in the Holy Spirit (Luke 10:21).
+2. Weeping at the tomb of Lazarus (John 11:35).
+
+Here is a list of words:
+
+1. How great is my distress (Luke 12:50).
+2. Now my soul is troubled (John 12:27).
+
+However, this moments of grief and distress didn't immobilize Him.
+Right after weeping He went over to actions of faith, giving instructions for the stone to be rolled away in preparation for the resurrection.
+Right after saying that His distress is great, and that His soul is troubled, He continued teaching and rebuking.
+
+Where He was 'stopped' was in the deep prayer with the Father right before the crucifixion.
+This was where He bared His anxiety, a godly anxiety, and worked through it.
+After returning to His disciples, He was back to leading them and going ahead with the mission.

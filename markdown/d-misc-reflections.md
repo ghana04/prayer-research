@@ -334,3 +334,22 @@ But God was greatly 'inconvenienced' in sending His Son to restore fallen humani
 Maybe what we need to witness to the world today is at least the attempt to restore that which is broken.
 If that fails (like the unrepentant sinner), then we cast it away.
 Until then, we attempt to bring life to bear on the object/thing/person.
+
+## Reflections on John 11:4
+
+God wants to give us glory, as Jesus also affirms in John 17:22.
+However, he wants to give that glory to as in a certain capacity and where His name will be hallowed.
+
+We will receive glory _as_:
+
+- A servant of God
+- A son of God
+- A disciple of Christ
+
+It is like a master sending a servant to a foreign nation.
+If that servant is clothed in rags, people will assume a cruel or poor or negligent master.
+
+Naturally, the master would want the servant to be well dressed and esteemed, as it brings glory to him.
+However, if the receiving of this glory jeopardizes the mission for which the servant was sent, then the master would be wise to remove that glory to keep the servant focused on the mission.
+As with Abraham, he could entrust his servant with many riches to accomplish the mission.
+As with Elisha, he could not entrust his servant with many riches, as Gehazi had a greedy heart.
